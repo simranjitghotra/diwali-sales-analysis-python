@@ -49,6 +49,16 @@ Top 10 states by total sales
 
 Product category distribution
 
+📌 Insights
+
+Female customers contribute more to total sales
+
+Age group 26–35 shows the highest purchasing activity
+
+Uttar Pradesh, Maharashtra, and Karnataka are top sales states
+
+IT and Healthcare professionals are major buyers
+
 
 
 
